@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Lambert-gif
 - 👀 I’m interested in sports and food
-- 🌱 I’m currently learning how to use a mac
-- 💞️ I’m looking to collaborate on sales techniques
+- 🌱 I’m currently learning how to improve my sales skills
+- 💞️ I’m looking forward eating Pata Negra
 - 📫 How to reach me +33 6 23 91 72 33
 
 <!---
